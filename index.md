@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my thing
 
-I'm glad you are here. I plan to talk about ...
+where you get to see things in this site idk
